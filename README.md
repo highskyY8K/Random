@@ -1,6 +1,6 @@
 # Random QNA
 
-These names are ALL of my alt accounts!, most of them have been used in doomspire brickbattle aka they ARE banned.
+These account names are ALL of my alt accounts!, most of them have been used in doomspire brickbattle aka they ARE banned.
 
 # Why am i doing this?
 
